@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ich bin Mika, ein 17 Jähriger Typ aus dem Internet :)
+Ich bin Mika, ein 18 Jähriger Typ aus dem Internet :)
 
 
 ## 🌐 Socials:
